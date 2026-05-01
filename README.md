@@ -28,7 +28,7 @@ sonic is my main fandom and special interest!! i've been sonic obsessed since th
 
 psst i try to avoid most exe stuff.. i'm chill with it on pt for the most part just like don't come up to me and describe how you would brutally murder me and stuff
 
-also, I'm a big multishipper!! cuz only choosing one is boring. spice it up a lil. Shadamy vs Sonadow? Sonshadamy. Boom.
+also, I'm a big multishipper!! cuz only choosing one is boring. spice it up a lil. Shadamy vs Sonadow? Why not both. Or better yet, Sonshadamy. Boom.
 
 I really like kittailsokbye
 
